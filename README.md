@@ -1,0 +1,1 @@
+# strojservice.cz
